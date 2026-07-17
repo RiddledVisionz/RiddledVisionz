@@ -4,11 +4,12 @@
 ୨୧︵˙．୨୧
 Helloǃ My preferred name on here is Mr․ Puzzles or just puzzles for short․ ︵˙．୨୧ My pronouns are He/Him or They/them. Either of the two I'm fine with. I am a fictionkin and a therian and most likely bisexual.
 
-Mostly afk on Ponytown or hanging out with a friend. ^^
+Mostly afk on Ponytown or hanging out with a friend. ^^ I also ignore advertisements so please do not send them.
 
 I have autism and GAD. I am also dyslexic, so please bear with me if I get anything wrong.
 
-I encourage cuddles and even piles. As long as you don't cover me or any of my friends. I also do not mind if you send whispers! I am more likely to see your message that way. I could be talking to friends in whispers/party or other things, but I will eventually get to you. But please don't expect a response all the time as I could be busy or not feeling great. But I will respond if I want to. but in general, I love being sent whispers.
+I encourage cuddles and even piles. As long as you don't cover me or any of my friends. I also do not mind if you send whispers! I am more likely to see your message that way. I could be talking to friends in whispers/party or other things, but I will eventually get to you. But please don't expect a response all the time, as I could be busy or not feeling great. But I will respond if I want to. But in general, I love being sent whispers.
+
 
 
 
