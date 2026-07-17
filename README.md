@@ -2,7 +2,7 @@
  ## ': ᴛʜᴀɴᴋ ʏᴏᴜ, ᴛʜᴀɴᴋ ʏᴏᴜ, ʏᴏᴜ'ʀᴇ ᴀʟʟ ᴛᴏᴏ ᴋɪɴᴅ! ɪ'ᴍ ᴛʜʀɪʟʟᴇᴅ ᴛᴏ ᴡᴇʟᴄᴏᴍᴇ ᴇᴠᴇʀʏᴏɴᴇ ᴛᴏ ᴛʜᴇ ᴍᴏꜱᴛ ᴏᴜᴛʀᴀɢᴇᴏᴜꜱ, ᴜᴘʀᴏᴀʀɪᴏᴜꜱ ᴀɴᴅ ᴜᴛᴛᴇʀʟʏ ꜰᴀɴᴛᴀꜱᴛɪᴄᴀʟ ꜱᴘᴇᴄᴛᴀᴄʟᴇ ᴛᴏ ᴇᴠᴇʀ ɢʀᴀᴄᴇ ʏᴏᴜʀ ꜱᴄʀᴇᴇɴꜱ.''
 
 ୨୧︵˙．୨୧
-Helloǃ My preferred name on here is Mr․ Puzzles or just puzzles for short․ ︵˙．୨୧ My pronouns are He/Him or They/them. Either of the two I'm fine with. I am a fictionkin and a therian and most likely bisexual. I am also the owner of the Toy Puzzles AU
+Helloǃ My preferred name on here is Mr․ Puzzles or just puzzles for short․ ︵˙．୨୧ My pronouns are He/Him or They/them. Either of the two I'm fine with. I am a fictionkin and a therian and most likely bisexual. I am also the owner of the Toy Puzzles AU.
 
 Mostly afk on Ponytown or hanging out with a friend. You can see me by the bakery chilling with people or friends, wearing a Toy Puzzles skin, a regular Puzzles skin. or King titus from Hoppers. ^^ If not there, I am likely elsewhere with my friends.
 I have autism and GAD. I am also dyslexic, so please bear with me if I get anything wrong.
