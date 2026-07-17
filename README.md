@@ -11,5 +11,8 @@ I encourage cuddles and even piles. As long as you don't cover me or any of my f
 
 lonely sometimes, so please do feel free to interact or just sit next to me.
 
+[BEFORE INTERACTING]
+-with GAD I can be a bit aggressive and easily upset by things. So please be aware. Although if you are a close friend I am comfortable with, then you can stay by me.
+
 
 
