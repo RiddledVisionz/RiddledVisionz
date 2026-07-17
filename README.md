@@ -13,6 +13,8 @@ lonely sometimes, so please do feel free to interact or just sit next to me.
 
 [BEFORE INTERACTING]
 -with GAD I can be a bit aggressive and easily upset by things. So please be aware. Although if you are a close friend I am comfortable with, then you can stay by me.
+I can be blunt sometimes and will say if I don't like something.
+
 
 
 
