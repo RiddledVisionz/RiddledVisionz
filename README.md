@@ -1,4 +1,4 @@
-![image alt]{https://github.com/RiddledVisionz/RiddledVisionz/blob/14b8a3b4eaa8449ff7df7fca488a290301d660ea/download%20(3).jpe]
+![image alt]https://github.com/RiddledVisionz/RiddledVisionz/blob/14b8a3b4eaa8449ff7df7fca488a290301d660ea/download%20(3).jpe]
 
  ## ': ᴛʜᴀɴᴋ ʏᴏᴜ, ᴛʜᴀɴᴋ ʏᴏᴜ, ʏᴏᴜ'ʀᴇ ᴀʟʟ ᴛᴏᴏ ᴋɪɴᴅ! ɪ'ᴍ ᴛʜʀɪʟʟᴇᴅ ᴛᴏ ᴡᴇʟᴄᴏᴍᴇ ᴇᴠᴇʀʏᴏɴᴇ ᴛᴏ ᴛʜᴇ ᴍᴏꜱᴛ ᴏᴜᴛʀᴀɢᴇᴏᴜꜱ, ᴜᴘʀᴏᴀʀɪᴏᴜꜱ ᴀɴᴅ ᴜᴛᴛᴇʀʟʏ ꜰᴀɴᴛᴀꜱᴛɪᴄᴀʟ ꜱᴘᴇᴄᴛᴀᴄʟᴇ ᴛᴏ ᴇᴠᴇʀ ɢʀᴀᴄᴇ ʏᴏᴜʀ ꜱᴄʀᴇᴇɴꜱ.''
 
