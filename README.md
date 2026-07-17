@@ -8,6 +8,9 @@ BEFORE INTERACTING:I can get really lonely sometimes. I do not mind interacting 
 
 Dni if Albeist, Racist, Transphobic, Homophobic, Etc..]
 
+I suffer from GAD, and I have autism, so I can be a bit snappy in GAD episodes. Please keep that in mind, but I swear I am nice. Although if you are a close friend. you still are allowed to interact since I am more comfortable being around you.
+
+
 
 
 
