@@ -1,9 +1,7 @@
-## ': ᴛʜᴀɴᴋ ʏᴏᴜ, ᴛʜᴀɴᴋ ʏᴏᴜ, ʏᴏᴜ'ʀᴇ ᴀʟʟ ᴛᴏᴏ ᴋɪɴᴅ! ɪ'ᴍ ᴛʜʀɪʟʟᴇᴅ ᴛᴏ ᴡᴇʟᴄᴏᴍᴇ ᴇᴠᴇʀʏᴏɴᴇ ᴛᴏ ᴛʜᴇ ᴍᴏꜱᴛ ᴏᴜᴛʀᴀɢᴇᴏᴜꜱ, ᴜᴘʀᴏᴀʀɪᴏᴜꜱ ᴀɴᴅ ᴜᴛᴛᴇʀʟʏ ꜰᴀɴᴛᴀꜱᴛɪᴄᴀʟ ꜱᴘᴇᴄᴛᴀᴄʟᴇ ᴛᴏ ᴇᴠᴇʀ ɢʀᴀᴄᴇ ʏᴏᴜʀ ꜱᴄʀᴇᴇɴꜱ, 
+୨୧︵˙．୨୧ ## ': ᴛʜᴀɴᴋ ʏᴏᴜ, ᴛʜᴀɴᴋ ʏᴏᴜ, ʏᴏᴜ'ʀᴇ ᴀʟʟ ᴛᴏᴏ ᴋɪɴᴅ! ɪ'ᴍ ᴛʜʀɪʟʟᴇᴅ ᴛᴏ ᴡᴇʟᴄᴏᴍᴇ ᴇᴠᴇʀʏᴏɴᴇ ᴛᴏ ᴛʜᴇ ᴍᴏꜱᴛ ᴏᴜᴛʀᴀɢᴇᴏᴜꜱ, ᴜᴘʀᴏᴀʀɪᴏᴜꜱ ᴀɴᴅ ᴜᴛᴛᴇʀʟʏ ꜰᴀɴᴛᴀꜱᴛɪᴄᴀʟ ꜱᴘᴇᴄᴛᴀᴄʟᴇ ᴛᴏ ᴇᴠᴇʀ ɢʀᴀᴄᴇ ʏᴏᴜʀ ꜱᴄʀᴇᴇɴꜱ.'' ୨୧︵˙．୨୧
 
-୨୧︵˙．୨୧ ''The common denominatorǃ
 
-Helloǃ My preferred name on here is Mr․ Puzzles․ ︵˙．୨୧ Please do refer me to a they⁄them․ ︵˙．୨୧
-Here are some ideas to get you started:
+Helloǃ My preferred name on here is Mr․ Puzzles․ ︵˙．୨୧ Please do refer me to a they⁄them․
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
