@@ -9,7 +9,7 @@ Please do refer me to a they⁄them․ or He/Him. I am also the owner of the Toy
   
   (I will back away if I feel unwelcome.)
  
- Smg4. Hoppers, DND, and  the Toy AU! are my main fixations. I cannot count all the others, but if you wanna ask, you can. There's a chance I may know what you're talking about.
+ Smg4. Hoppers, DND, and  the Toy AU! are my main fixations. I cannot count all the others, but if you wanna ask out of curiosity, you can. There's a chance I may know what you're talking about.
 
 I suffer from GAD, and I have autism, so I can be a bit snappy in GAD episodes. Please keep that in mind, but I swear I am nice. Although if you are a close friend. you still are allowed to interact since I am more comfortable being around you.
 DNI if Albeist, Racist, Transphobic, Homophobic, or force religion. Etc..]
