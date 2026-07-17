@@ -8,7 +8,7 @@ Mostly afk on Ponytown or hanging out with a friend. You can see me by the baker
 I have autism and GAD. I am also dyslexic, so please bear with me if I get anything wrong.
 
 I encourage cuddles and even piles. As long as you don't cover me or any of my friends. I also do not mind if you send whispers! I am more likely to see your message that way. I could be talking to friends in whispers/party or other things, but I will eventually get to you. But please don't expect a response all the time, as I could be busy or not feeling great. But I will respond if I want to. But in general, I love being sent whispers. I also ignore advertisements, so please do not send them.
-As much as I like discussions and meeting people, if we just met, keep in mind that we are not friends. It will take me a while to adjust to you and build up trust. [ I will also back away if I feel unwelcome.]
+As much as I like discussions, if we just met, keep in mind that we are not friends. It will take me a while to adjust to you and build up trust. [ I will also back away if I feel unwelcome.]
 
 lonely sometimes, so please do feel free to interact or just sit next to me.
 
@@ -18,6 +18,7 @@ I can be blunt sometimes and will say if I don't like something.
 Please do not vent to me. I am not your therapist. Things like this really damage my health. It is only if you are a close friend I am comfortable with that then maybe.
 Treat me and others as you would want to be treated. Simple enough, yeah?
 
+DNI if: Ableist, Racist, homophobic, transphobic, an unkind person, close-minded. etc..]
 
 
 
