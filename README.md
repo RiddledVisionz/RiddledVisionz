@@ -3,3 +3,6 @@
 
 ୨୧︵˙．୨୧
 Helloǃ My preferred name on here is Mr․ Puzzles․ ︵˙．୨୧ Please do refer me to a they⁄them․. I am also the owner of Toy Puzzles AU on Tumblr. You can find me using either Toy Puzzles skin or regular Puzzles. You may also see me as King Titus from Hoppers. I am normally next to the Bakery chilling with my friends or at the Smg4 spot, although it really isn't used anymore. If not, I am likely elsewhere with friends.  I do get lonely sometimes, so feel free to interact if you want. If you want to join, please do not cover my friends or my cosplay. It's rude. But you are more than welcome to cuddle as well.
+
+BEFORE INTERACTING:
+I do have GAD, so I can sometimes be a bit snappy in episodes and aloof. althrough, if you are a close enough friend. it will still be okay for you to interact.
