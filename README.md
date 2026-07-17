@@ -6,6 +6,5 @@ Helloǃ My preferred name on here is Mr․ Puzzles․ ︵˙．୨୧ Please do r
 
 BEFORE INTERACTING:
 I do not mind interacting with people, as long as you're not disrespectful to me and my friends. Also please know if we just met that we are not friends. It will take me a while to get used to you and build up trust. I will also back away if I feel unwelcome.
-
 I suffer from GAD, and I have autism, so I can be a bit snappy in GAD episodes and aloof. Please keep that in mind, but I swear I am nice. Although, if you are a close friend. you still are allowed to interact since I am more comfortable being around you.
 
