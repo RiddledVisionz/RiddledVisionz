@@ -7,6 +7,7 @@ Helloǃ My preferred name on here is Mr․ Puzzles․ ︵˙．୨୧ Please do r
 BEFORE INTERACTING:
 (Obviously, DNI if you are unkind or any bad stuff)
 I can get really lonely sometimes. I do not mind interacting with people, as long as you're not disrespectful to me and my friends. Also, please know that if we just met, we are not friends. It will take me a while to get used to you and build up trust. I will back away if I feel unwelcome.
+Transphobic and Homophobic Dni.
 
 
 
