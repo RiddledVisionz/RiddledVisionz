@@ -1,10 +1,8 @@
 ## ': ᴛʜᴀɴᴋ ʏᴏᴜ, ᴛʜᴀɴᴋ ʏᴏᴜ, ʏᴏᴜ'ʀᴇ ᴀʟʟ ᴛᴏᴏ ᴋɪɴᴅ! ɪ'ᴍ ᴛʜʀɪʟʟᴇᴅ ᴛᴏ ᴡᴇʟᴄᴏᴍᴇ ᴇᴠᴇʀʏᴏɴᴇ ᴛᴏ ᴛʜᴇ ᴍᴏꜱᴛ ᴏᴜᴛʀᴀɢᴇᴏᴜꜱ, ᴜᴘʀᴏᴀʀɪᴏᴜꜱ ᴀɴᴅ ᴜᴛᴛᴇʀʟʏ ꜰᴀɴᴛᴀꜱᴛɪᴄᴀʟ ꜱᴘᴇᴄᴛᴀᴄʟᴇ ᴛᴏ ᴇᴠᴇʀ ɢʀᴀᴄᴇ ʏᴏᴜʀ ꜱᴄʀᴇᴇɴꜱ, 
 
-<!--୨୧︵˙．୨୧ ''The common denominatorǃ
+୨୧︵˙．୨୧ ''The common denominatorǃ
 
 Helloǃ My preferred name on here is Mr․ Puzzles․ ︵˙．୨୧ Please do refer me to a they⁄them․ ︵˙．୨୧
-**RiddledVisionz/RiddledVisionz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
