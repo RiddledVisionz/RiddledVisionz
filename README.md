@@ -2,8 +2,8 @@
  ## ': ᴛʜᴀɴᴋ ʏᴏᴜ, ᴛʜᴀɴᴋ ʏᴏᴜ, ʏᴏᴜ'ʀᴇ ᴀʟʟ ᴛᴏᴏ ᴋɪɴᴅ! ɪ'ᴍ ᴛʜʀɪʟʟᴇᴅ ᴛᴏ ᴡᴇʟᴄᴏᴍᴇ ᴇᴠᴇʀʏᴏɴᴇ ᴛᴏ ᴛʜᴇ ᴍᴏꜱᴛ ᴏᴜᴛʀᴀɢᴇᴏᴜꜱ, ᴜᴘʀᴏᴀʀɪᴏᴜꜱ ᴀɴᴅ ᴜᴛᴛᴇʀʟʏ ꜰᴀɴᴛᴀꜱᴛɪᴄᴀʟ ꜱᴘᴇᴄᴛᴀᴄʟᴇ ᴛᴏ ᴇᴠᴇʀ ɢʀᴀᴄᴇ ʏᴏᴜʀ ꜱᴄʀᴇᴇɴꜱ.''
 
 ୨୧︵˙．୨୧
-Helloǃ My preferred name on here is Mr․ Puzzles or just puzzles for short․ ︵˙．୨୧ My pronouns are He/Him or They/them. Either of the two I'm fine with. I am a fictionkin and a therian and most likely bisexual. I am also the owner of the Toy Puzzles AU.
-I have autism and GAD. I am also dyslexic, so please bear with me if I get anything wrong.
+Helloǃ My preferred name on here is Mr․ Puzzles or just puzzles for short․ ︵˙．୨୧ My pronouns are He/Him or They/them. Either of the two I'm fine with. I am a fictionkin and a therian and most likely bisexual. I am also the owner of the Toy Puzzles AU on tumblr.
+
 
 Mostly afk on Ponytown or hanging out with a friend. You can see me by the bakery chilling with people or friends, wearing a Toy Puzzles skin, a regular Puzzles skin. or King titus from Hoppers. ^^ If not there, I am likely elsewhere with my friends.
 
@@ -14,6 +14,7 @@ As much as I like discussions, if we just met, keep in mind that we are not frie
 lonely sometimes, so please do feel free to interact or just sit next to me.
 
 [BEFORE INTERACTING]
+I have autism and GAD. I am also dyslexic, so please bear with me if I get anything wrong.
 -with GAD I can be a bit aggressive and easily upset by things. So please be aware. Although if you are a close friend I am comfortable with, then you can stay by me.
 I can be blunt sometimes and will say if I don't like something.
 Please do not vent to me. I am not your therapist. Things like this really damage my health. It is only if you are a close friend I am comfortable with that then maybe.
