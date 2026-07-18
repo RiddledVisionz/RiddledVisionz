@@ -15,9 +15,13 @@ lonely sometimes, so please do feel free to interact or just sit next to me.
 
 [BEFORE INTERACTING]
 I have autism and GAD. I am also dyslexic, so please bear with me if I get anything wrong.
+
 -with GAD I can be a bit aggressive and easily upset by things. So please be aware. Although if you are a close friend I am comfortable with, then you can stay by me.
+
 I can be blunt sometimes and will say if I don't like something.
+
 Please do not vent to me. I am not your therapist. Things like this really damage my health. It is only if you are a close friend I am comfortable with that then maybe.
+
 Treat me and others as you would want to be treated. Simple enough, yeah?
 
 
