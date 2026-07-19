@@ -25,7 +25,6 @@ Please do not vent to me. I am not your therapist. Things like this really damag
 
 Treat me and others as you would want to be treated. Simple enough, yeah?
 
-If you make fun of Fictionkins/Therians.
 
 DNI if: Ableist, Racist, forces religion homophobic, transphobic, pedophile, zoophile, an unkind person, close-minded, not respecting boundaries, bullying people. Making fun of Fictionkins/Therians. etc..]
 
