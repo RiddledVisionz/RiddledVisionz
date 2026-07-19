@@ -27,7 +27,7 @@ Treat me and others as you would want to be treated. Simple enough, yeah?
 
 If you make fun of Fictionkins/Therians.
 
-DNI if: Ableist, Racist, forces religion homophobic, transphobic, pedophile, zoophile, an unkind person, close-minded, not respecting boundaries, bullying people.If you make fun of Fictionkins/Therians. etc..]
+DNI if: Ableist, Racist, forces religion homophobic, transphobic, pedophile, zoophile, an unkind person, close-minded, not respecting boundaries, bullying people. Making fun of Fictionkins/Therians. etc..]
 
 
 Interests: Smg4, Calling all villains, Hoppers, DND, Gravity Falls, etc. There's too much to count, but if you're curious, you may ask. There's a chance I may know what you're talking about.
