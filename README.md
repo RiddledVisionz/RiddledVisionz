@@ -5,7 +5,7 @@
 Helloǃ My preferred name on here is Mr․ Puzzles or just puzzles for short․ ︵˙．୨୧ My pronouns are He/Him or They/them. Either of the two I'm fine with. I am a fictionkin and a therian and most likely bisexual. I am also the owner of the Toy Puzzles AU on tumblr.
 
 
-Mostly afk on Ponytown or hanging out with a friend. You can see me by the bakery chilling with people or friends, wearing a Toy Puzzles skin, a regular Puzzles skin. or King titus from Hoppers. I will also sometimes Stanford Pines. ^^ If not there, I am likely elsewhere with my friends.
+Mostly afk on Ponytown or hanging out with a friend. You can see me by the bakery chilling with people or friends, wearing a Toy Puzzles skin, a regular Puzzles skin. or King titus from Hoppers. I will also sometimes be Stanford Pines. ^^ If not there, I am likely elsewhere with my friends.
 
 
 I encourage cuddles and even piles. As long as you don't cover me or any of my friends. I also do not mind if you send whispers! I am more likely to see your message that way. I could be talking to friends in whispers/party or other things, but I will eventually get to you. But please don't expect a response all the time, as I could be busy or not feeling great. But I will respond if I want to. But in general, I love being sent whispers. I also ignore advertisements, so please do not send them. also if we just met, please do keep in mind we are not friends yet. It will take me a while to adjust to you and build up trust.
