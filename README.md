@@ -6,7 +6,9 @@ ABOUT ME
 
 Greetings! I'm Mr. Puzzles, but you can call me Puzzles for short if you like. Please, sit down and make yourself comfortable.
 
--I identify as a Mr. Puzzles fictionkin and am semi-okay with doubles, but please don’t mention it if you are one. it makes me severely uncomfortable.
+-I am autistic and have GAD. as well, and I have dyslexia, so please have patience with me if I get anything wrong.
+
+-I identify as a Mr. Puzzles fictionkin and am semi-okay with doubles, but please don’t mention it if you are one. It makes me severely uncomfortable.
 
 -Trans so please refer to me to a He/Him or They/Them.
 
