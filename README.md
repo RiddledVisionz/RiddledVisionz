@@ -20,6 +20,6 @@ PONY TOWN INFORMATION
 
 I don't like being by myself and prefer company, so I encourage cuddles and even piles! Just please don't do anything stupid that will irritate me, such as covering my friends or me. But if you're a friend, I know cuddling me out of comfort purposes is fine. 
 
-I'm not always busy, but there's a small chance I may see your message, so I'd prefer if you send me whispers instead. I could be talking in party or talking to friends. But I will get to you eventually! Just don't pressure or irritate me, and I will respond to you. Otherwise, you will be ignored.
+I'm not always busy, but there's a small chance I may see your pubilc message, so I'd prefer it if you send me whispers instead. I could be talking in party or talking to friends. But I will probably get to you eventually! Just don't pressure or irritate me, and I will respond to you. Otherwise, you will be ignored. I respond when I want to, so don't expect a response from me all the time.
 
 
