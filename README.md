@@ -16,4 +16,8 @@ Greetings! I'm Mr. Puzzles, but you can call me Puzzles for short if you like. P
 
 ★★★★★
 
+PONY TOWN INFORMATION
+
+I encourage cuddles and even piles!
+
 
