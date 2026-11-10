@@ -56,7 +56,7 @@ I say I love you, but in a platonic way, so don't think of it in a romantic way.
 
  ★★★★★
  
- |📞 Interests: Villains, Epic the Musical, Hoppers, DND, Gravity Falls, and more. If you're curious, feel free to ask—I might know what you're talking about.
+ |📞 Interests: calling all Villains, Epic the Musical, Hoppers, DND, Gravity Falls, and more. If you're curious, feel free to ask—I might know what you're talking about.
 
 DNI 
   
