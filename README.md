@@ -39,17 +39,19 @@ IWEC.
 
 I Do infact bite, proceed with caution.
 
-have common sense, obviously. If you can't, you will be blocked. I am also sensitive, so be mindful of that before you send me anything.
+Due to trauma and other personal issues, I can have fatherly behaviors, so please be warned.
 
-Due to GAD, I can become aggressive and aloof at times. When this happens, I may not want to talk to you unless you are REALLY SPECIAL or a close friend that I trust enough not to make my panic attacks worse.
+Have common sense, obviously. If you can't, you will be blocked. I am also sensitive, so be mindful of that before you send me anything.
+
+Due to GAD, I can become aggressive and aloof at times. When this happens, I may not want to talk to you unless you are REALLY SPECIAL or a close friend whom I trust enough not to make my panic attacks worse.
 
 As much as I love interacting with new people and chilling, if we’ve just met, please keep in mind we are not friends. It will take time for me to trust you and consider you a friend.
 
-I say I love you, but in a platonic way, so don't be weird and think of it in a romantic way.
+I say I love you, but in a platonic way, so don't think of it in a romantic way.
 
-Speaking of weird, do not be gross. Thank you.
+ Do not be gross. Thank you.
 
-Due to trauma and other personal issues, I can have fatherly behaviors, so please be warned.
+
 
 
 
