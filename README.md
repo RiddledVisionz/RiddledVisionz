@@ -41,6 +41,8 @@ I Do infact bite, proceed with caution.
 
 Due to trauma and other personal issues, I can have fatherly behaviors, so please be warned.
 
+Do not be gross. Thank you.
+
 Have common sense, obviously. If you can't, you will be blocked. I am also sensitive, so be mindful of that before you send me anything.
 
 Due to GAD, I can become aggressive and aloof at times. When this happens, I may not want to talk to you unless you are REALLY SPECIAL or a close friend whom I trust enough not to make my panic attacks worse.
@@ -51,7 +53,6 @@ As much as I love interacting with new people and chilling, if we’ve just met,
 
 I say I love you, but in a platonic way, so don't think of it in a romantic way.
 
- Do not be gross. Thank you.
 
  ★★★★★
  
@@ -59,10 +60,10 @@ I say I love you, but in a platonic way, so don't think of it in a romantic way.
 
 DNI 
   
- if: Ableist, racist, Satanist (I have my personal reasons for this), religiously forceful, homophobic, transphobic, pedophile, zoophile, unkind, close-minded, disrespectful of boundaries, or bullying.]
+ if: Ableist, racist, Satanist (I have my personal reasons for this), religiously forceful, homophobic, transphobic, pedophile, zoophile, unkind, close-minded, disrespectful of boundaries, or bullying. Making fun of Fictionkins/Therians. etc..] Also, if you ship Billdip, stay the fuck away from me.]
 
- DNI 
 
+ ★★★★★
 
 
 
