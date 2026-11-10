@@ -18,6 +18,7 @@ Greetings! I'm Mr. Puzzles, but you can call me Puzzles for short if you like. P
 
 PONY TOWN INFORMATION
 
+I am often my CAV Puzzles skin or the Jester one. You can find me in the dead Smg4 area or below the bakery. I normally chill there even if there aren't that many people. If not there, I am likely elsewhere with people or with friends.
 
 I don't like being by myself and prefer company, so I encourage cuddles and even piles! Just please don't do anything stupid that would irritate me, like covering my friends or me. But if you're a friend, or for comfort purposes, then it is fine. 
 
