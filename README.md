@@ -37,6 +37,12 @@ IWEC.
 
 I Do infact bite, proceed with caution.
 
-Due to GAD, I can become aggressive and aloof. When this happens, I may not want to talk to you.
+Due to GAD, I can become aggressive and aloof at times. When this happens, I may not want to talk to you unless you are REALLY SPECIAL or a close friend that I trust enough not to make my panic attacks worse.
+
+As much as I love interacting with new people and chilling, if we’ve just met, please keep in mind we are not friends. It will take time for me to trust you and consider you a friend.
+
+
+
+
 
 
