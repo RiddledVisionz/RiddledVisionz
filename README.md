@@ -47,6 +47,8 @@ As much as I love interacting with new people and chilling, if we’ve just met,
 
 I say I love you, but in a platonic way, so don't think of it in a romantic way.
 
+Due to trauma and other personal issues, I can have fatherly behaviors, so please be warned.
+
 
 
 
