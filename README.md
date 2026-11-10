@@ -28,5 +28,9 @@ Not really as busy most of the time, but there's a small chance I may see your p
 
 I do roleplay! But don't always expect me to. I could not be willing to roleplay or not in the mood to do so. it can also get boring for me, so I might leave the roleplay sometimes.
 
+Do NOT send me advertisements of any kind. They will all be ignored.
+
+
+
 
 
