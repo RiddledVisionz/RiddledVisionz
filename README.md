@@ -39,7 +39,7 @@ IWEC.
 
 I Do infact bite, proceed with caution.
 
-have common sense, obviously. If you can't, you will be blocked.
+have common sense, obviously. If you can't, you will be blocked. I am also sensitive, so be mindful of that before you send me anything.
 
 Due to GAD, I can become aggressive and aloof at times. When this happens, I may not want to talk to you unless you are REALLY SPECIAL or a close friend that I trust enough not to make my panic attacks worse.
 
