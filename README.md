@@ -18,6 +18,6 @@ Greetings! I'm Mr. Puzzles, but you can call me Puzzles for short if you like. P
 
 PONY TOWN INFORMATION
 
-I encourage cuddles and even piles!
+I don't like being by myself, so I encourage cuddles and even piles! Just please don't do anything stupid that will irritate me, such as covering my friends or me.
 
 
