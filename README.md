@@ -57,6 +57,12 @@ I say I love you, but in a platonic way, so don't think of it in a romantic way.
  
  |📞 Interests: Villains, Epic the Musical, Hoppers, DND, Gravity Falls, and more. If you're curious, feel free to ask—I might know what you're talking about.
 
+DNI 
+  
+ if: Ableist, racist, Satanist (I have my personal reasons for this), religiously forceful, homophobic, transphobic, pedophile, zoophile, unkind, close-minded, disrespectful of boundaries, or bullying.]
+
+ DNI 
+
 
 
 
