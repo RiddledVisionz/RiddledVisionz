@@ -10,6 +10,8 @@ Greetings! I'm Mr. Puzzles, but you can call me Puzzles for short if you like. P
 
 -I identify as a Mr. Puzzles fictionkin and am semi-okay with doubles, but please don’t mention it if you are one. It makes me severely uncomfortable.
 
+-Aroace and Bisexual.
+
 -Trans so please refer to me to a He/Him or They/Them.
 
 -Under 13 or 30 DNI. Please be 14-18 or +18. I will not be revealing my age due to privacy reasons that were once overstepped in a bad situation.
@@ -23,7 +25,7 @@ I am often my CAV Puzzles skin or the Jester Puzzles skin. Even sometimes my Dip
 I don't like being by myself and prefer company, so I encourage cuddles and even piles! Just please don't do anything stupid that would irritate me, like covering my friends or me.  But if you're a friend, or for comfort purposes, then it is fine.
 (you may also talk to me)
 
-Whisper or approach/boop to interact.
+Whisper or approach/boop to interact. Please do interact! I get lonely or bored sometimes.
 
 I'm not busy most of the time, but there's a small chance I may see your public message, so I'd prefer it if you send me whispers instead. I could be talking in party or talking to friends. But I will probably get to you eventually! Just don't pressure or irritate me, and I will respond to you. Otherwise, you will be ignored. I respond when I want to, so don't expect a response from me all the time.
 
@@ -37,9 +39,13 @@ IWEC.
 
 I Do infact bite, proceed with caution.
 
+have common sense, obviously. If you can't, you will be blocked.
+
 Due to GAD, I can become aggressive and aloof at times. When this happens, I may not want to talk to you unless you are REALLY SPECIAL or a close friend that I trust enough not to make my panic attacks worse.
 
 As much as I love interacting with new people and chilling, if we’ve just met, please keep in mind we are not friends. It will take time for me to trust you and consider you a friend.
+
+I say I love you, but in a platonic way, so don't think of it in a romantic way.
 
 
 
