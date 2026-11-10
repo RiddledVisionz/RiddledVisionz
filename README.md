@@ -45,11 +45,17 @@ Have common sense, obviously. If you can't, you will be blocked. I am also sensi
 
 Due to GAD, I can become aggressive and aloof at times. When this happens, I may not want to talk to you unless you are REALLY SPECIAL or a close friend whom I trust enough not to make my panic attacks worse.
 
+Please do not vent to me. I am not your therapist. Things like this really damage my health. It is only if you are a close friend I am comfortable with that then maybe.
+
 As much as I love interacting with new people and chilling, if we’ve just met, please keep in mind we are not friends. It will take time for me to trust you and consider you a friend.
 
 I say I love you, but in a platonic way, so don't think of it in a romantic way.
 
  Do not be gross. Thank you.
+
+ ★★★★★
+ 
+ |📞 Interests: Villains, Epic the Musical, Hoppers, DND, Gravity Falls, and more. If you're curious, feel free to ask—I might know what you're talking about.
 
 
 
