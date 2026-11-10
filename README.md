@@ -20,4 +20,6 @@ PONY TOWN INFORMATION
 
 I don't like being by myself and prefer company, so I encourage cuddles and even piles! Just please don't do anything stupid that will irritate me, such as covering my friends or me. But if you're cuddling me, then I suppose it's fine.
 
+I'm not always busy, but there's a small chance I may see your message, so I'd prefer if you send me whispers instead, I could be talking in party or talking to friends.
+
 
