@@ -24,5 +24,7 @@ I do enjoy hangouts and crowds, but I can get easily nervous.
 
 I'm not always busy, but there's a small chance I may see your public message, so I'd prefer it if you send me whispers instead. I could be talking in party or talking to friends. But I will probably get to you eventually! Just don't pressure or irritate me, and I will respond to you. Otherwise, you will be ignored. I respond when I want to, so don't expect a response from me all the time.
 
+I do roleplay! But don't always expect me to
+
 
 
