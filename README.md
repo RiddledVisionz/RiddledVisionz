@@ -33,7 +33,10 @@ Do NOT send me advertisements of any kind. They will all be ignored.
 
 ★★★★★
 
+IWEC.
 
+I Do infact bite, proceed with caution.
 
+Due to GAD, I can become aggressive and aloof. When this happens, I may not want to talk to you.
 
 
