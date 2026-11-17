@@ -41,7 +41,7 @@ I Do infact bite, proceed with caution.
 
 Due to trauma and other personal issues, I can have fatherly behaviors, so please be warned.
 
-Do not be gross or have 18+ humor. We will not get along. thanks.
+Do not be gross or have 18+ humor towards me or my characters I care about. I will not like you as much for personal reasons, and we will not get along.
 
 Have common sense, obviously. If you can't, you will be blocked. I am also sensitive, so be mindful of that before you send me anything.
 
