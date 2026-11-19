@@ -8,7 +8,7 @@ Greetings! I'm Mr. Puzzles, but you can call me Puzzles for short if you like. P
 
 -I am autistic and have GAD. as well, and I have dyslexia, so please have patience with me if I get anything wrong.
 
--I identify as a Mr. Puzzles fictionkin and am semi-okay with doubles, but please don’t mention it if you are one. It makes me severely uncomfortable.
+-I identify as a Mr. Puzzles fictionkin and am semi-okay with doubles, but please don’t mention it if you are one. It makes me severely uncomfortable. I view myself as the only Puzzles and support others but don't wanna be told this.
 
 -Aroace and Bisexual.
 
